@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Serhiy Skarbek
-- ⚡️ I’m interested in taking new challenges and learning 
-- 🥷🏼 I’m looking to collaborate on new interesting projects where I can bring value and make this world a little bit better
+- ⚡️ I am eager to take on new challenges and further enrich my knowledge.
+- 🥷🏼 I'm excited to work on innovative and exciting projects that allow me to make a meaningful and positive impact on the world.
 
 
 <!---
